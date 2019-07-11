@@ -1,3 +1,3 @@
 # IndependentStudy
 
-อ่านบ้างนะะะะะะะะะ
+Create By Furkornss
